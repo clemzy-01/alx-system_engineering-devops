@@ -1,1 +1,0 @@
-ALX Journey begins
